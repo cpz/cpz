@@ -1,5 +1,5 @@
-### ain't underground
-### just flyin' stealth
+### ain't underground just flyin' stealth
 
-## contact: og (at) live (dot) cl
+
+#### contact: og (at) live (dot) cl
 
